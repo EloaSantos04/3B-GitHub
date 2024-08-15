@@ -7,4 +7,6 @@
   ### Você pode entrar em contato comigo:
 
   eloasantospaula2005@gmail.com
+
+  ![](https://media1.tenor.com/m/mlS3p-yvGqEAAAAC/taylor-swift-cheers.gif)
   
